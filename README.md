@@ -8,7 +8,7 @@
 
 - I really enjoy statistics, mapping, and visual design 🗺
 
-- History and geopolitics buff 🕐
+- History and geopolitics lover 🕐
 
 
 
